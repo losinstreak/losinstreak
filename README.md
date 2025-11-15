@@ -1,7 +1,17 @@
 <p align="center">
 <a href="https://github.com/losinstreak">
-  <img src="https://tenor.com/sZv9pew2rIO.gif">
+  <img src="https://media1.tenor.com/m/204LhtQ8hRgAAAAd/lady-luck-angel-dust.gif">
 </a>
+</p>
+
+<p align="center">
+hello my names angel or michael 
+</p>
+<p align="center"> 
+i'm very paranoid about dni's so very obvious thing to do is that if you don't like hazbin hotel or have hazbin fans in your dni just block me
+</p>
+<p align="center">
+general pony town boundaries are uhh ask me to c+h and like don't copy my ponies nor get inspired ok bye read my rentry
 </p>
 
 
