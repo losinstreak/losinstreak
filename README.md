@@ -1,4 +1,4 @@
-<p align="center">
+kk<p align="center">
 <a href="https://github.com/losinstreak">
   <img src="https://media1.tenor.com/m/204LhtQ8hRgAAAAd/lady-luck-angel-dust.gif">
 </a>
@@ -13,7 +13,7 @@ i'm very paranoid about dni's so very obvious thing to do is that if you don't l
 <p align="center">
 general pony town boundaries are uhh ask me to c+h and like don't copy my ponies nor get inspired ok bye read my rentry
 </p>
-
+ps none of my socials r updated lol
 
 
 <p align="center">
