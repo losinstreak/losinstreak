@@ -1,4 +1,4 @@
-kk<p align="center">
+<p align="center">
 <a href="https://github.com/losinstreak">
   <img src="https://media1.tenor.com/m/204LhtQ8hRgAAAAd/lady-luck-angel-dust.gif">
 </a>
