@@ -13,7 +13,7 @@ hello my names angel or michael
 </p>
 
 
-[rentry](https://rentry.co/ladylvck) [guestbook](https://poison.atabook.org) [prns.cc](https://pronouns.cc/@angiedust) ★•, + ~‾…︽
+[rentry](https://rentry.co/ladylvck) , [guestbook](https://poison.atabook.org) , [prns.cc](https://pronouns.cc/@angiedust) (⁠　✿　⁠^⁠　‿　⁠^　⁠)
 <p align="center"> 
 i'm very paranoid about dni's so very obvious thing to do is that if you don't like hazbin hotel or have hazbin fans in your dni just block me
 </p>
