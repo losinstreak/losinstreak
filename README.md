@@ -12,7 +12,6 @@ hello my names angel or michael
   i'm angel dust irl (really really really attached but a fictionkin) i don't mind doubles just don't be rude lmao 
 </p>
 
-　
 <p align="center"> 
 i'm very paranoid about dni's so very obvious thing to do is that if you don't like hazbin hotel or have hazbin fans in your dni just block me
 </p>
