@@ -1,19 +1,21 @@
 <p align="center">
 <a href="https://github.com/losinstreak">
-  <img src="https://media1.tenor.com/m/204LhtQ8hRgAAAAd/lady-luck-angel-dust.gif">
+  <img src="https://github.com/user-attachments/assets/8456aabe-a200-429c-a341-240246bb0997"/>
 </a>
 </p>
 
 
+
+
 <p align="center">
-hello my names angel or michael 
+hello my names maikol or michael 
 </p>
 <p align="center">
-  i'm angel dust irl (really really really attached but a fictionkin) i don't mind doubles just don't be rude lmao 
+  i'm a fictionkin, but really attached to my identity and such, so please don't be weird
 </p>
 
 <p align="center"> 
-i'm very paranoid about dni's so very obvious thing to do is that if you don't like hazbin hotel or have hazbin fans in your dni just block me
+i'm very paranoid about dni's so very obvious thing to do is that if you don't like hazbin hotel/helluva boss or have hazbin/helluva fans in your dni just block me
 </p>
 <p align="center">
 general pony town boundaries are uhh ask me to c+h and like don't copy my ponies nor get inspired ok bye read my rentry
