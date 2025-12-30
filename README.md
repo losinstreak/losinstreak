@@ -8,7 +8,7 @@
 
 
 <p align="center">
-hello my names maikol or michael 
+hello my names maikol or michael (but you should call me Vox or any other kin name)
 </p>
 <p align="center">
   i'm a fictionkin, but really attached to my identity and such, so please don't be weird
