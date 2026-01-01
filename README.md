@@ -1,6 +1,6 @@
 <p align="center">
 <a href="https://github.com/losinstreak">
-  <img src="https://github.com/user-attachments/assets/8456aabe-a200-429c-a341-240246bb0997"/>
+  <img src="https://github.com/user-attachments/assets/0284721d-43d6-4855-8e3e-a15f5a8fe4ce"/>
 </a>
 </p>
 
