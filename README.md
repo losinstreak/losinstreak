@@ -23,9 +23,19 @@ general pony town boundaries are uhh ask me to c+h and like don't copy my ponies
 
 <p align="center"> 
   <a href="https://poison.atabook.org">
-  <img src="" >
+  <img src="https://github.com/user-attachments/assets/5fe8e6d1-129a-4596-817a-28381144957a" >
   </a>
 </p>
+
+<p align="center"> 
+  <a href="https://rentry.co/">
+  <img src="https://github.com/user-attachments/assets/60d7685b-dca8-45ce-a275-7357da7dd13b" >
+  </a>
+</p>
+
+
+
+
 
 <p align="center">
   <a href="https://github.com/komarev">
