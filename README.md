@@ -21,6 +21,10 @@ i'm very paranoid about dni's so very obvious thing to do is that if you don't l
 general pony town boundaries are uhh ask me to c+h and like don't copy my ponies nor get inspired ok bye read my rentry
 </p>
 
+<p align="center">
+links! ↓ (click 'em, they're buttons)
+</p>
+
 <p align="center"> 
   <a href="https://poison.atabook.org">
   <img src="https://github.com/user-attachments/assets/5fe8e6d1-129a-4596-817a-28381144957a" >
@@ -33,6 +37,11 @@ general pony town boundaries are uhh ask me to c+h and like don't copy my ponies
   </a>
 </p>
 
+<p align="center">
+ <a href="https://rentry.co/fictohell">
+ <img src="https://github.com/user-attachments/assets/2eddc3e3-05f5-4bc5-a894-e859c50278b6" >
+ </a>
+</p>
 
 
 
