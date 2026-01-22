@@ -32,7 +32,7 @@ links! ↓ (click 'em, they're buttons)
 </p>
 
 <p align="center"> 
-  <a href="https://rentry.co/ladylvck">
+  <a href="https://rentry.co/WVHITTMAN">
   <img src="https://github.com/user-attachments/assets/60d7685b-dca8-45ce-a275-7357da7dd13b" >
   </a>
 </p>
