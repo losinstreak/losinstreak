@@ -28,19 +28,19 @@ links! ↓ (click 'em, they're buttons)
 
 <p align="center"> 
   <a href="https://poison.atabook.org">
-  <img src="https://github.com/user-attachments/assets/5fe8e6d1-129a-4596-817a-28381144957a" >
+  <img src="https://i.postimg.cc/Y01S8myG/Untitled148_20260124101336.png" >
   </a>
 </p>
 
 <p align="center"> 
   <a href="https://rentry.co/WVHITTMAN">
-  <img src="https://github.com/user-attachments/assets/60d7685b-dca8-45ce-a275-7357da7dd13b" >
+  <img src="https://i.postimg.cc/x8KdgbFk/Untitled148_20260124101340.png" >
   </a>
 </p>
 
 <p align="center">
  <a href="https://rentry.co/fictohell">
- <img src="https://github.com/user-attachments/assets/2eddc3e3-05f5-4bc5-a894-e859c50278b6" >
+ <img src="https://i.postimg.cc/h4xhKH49/Untitled148_20260124101332.png" >
  </a>
 </p>
 
